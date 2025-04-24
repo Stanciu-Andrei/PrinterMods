@@ -10,4 +10,4 @@ mods for [Mercury1.one](https://docs.zerog.one/)
 ### 8WD Mod
 
 ##
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/C0C510OWNY)
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/stanan56)
